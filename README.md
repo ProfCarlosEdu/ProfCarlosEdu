@@ -3,10 +3,10 @@
 
   **Vou usar esse perfil para salvar e compartilhar projetos**
 
-  Se quiser entrar em contato📧
+  Se quiser entrar em contato📧:
   
   carloseduardoprestes@hotmail.com
 
   @carlos_ed4
 
-  ![](https://media.tenor.com/ctFRS8NlezsAAAAi/tricolomania.gif)
+  ![](https://tenor.com/pt-BR/view/heart-love-gif-15663589914252965267)
